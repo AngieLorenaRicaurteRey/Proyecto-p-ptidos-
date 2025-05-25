@@ -1,1 +1,1 @@
-# Proyecto-p-ptidos-
+# Proyecto-peptidos-
